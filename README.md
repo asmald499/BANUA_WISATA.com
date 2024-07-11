@@ -1,0 +1,1 @@
+# BANUA_WISATA.com
